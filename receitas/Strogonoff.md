@@ -18,7 +18,7 @@
 
 - Batata palha e arroz branco para acompanhar
 
-###Modo de preparo
+### Modo de preparo
 
 1. Em uma panela a fogo médio, acrecente o óleo e o caldo de galinha e, dissolva o caldo. Logo em seguida coloque o frango picado em cubos na panela e deixe cozinhar, sempre dando uma olhadinha para não queimar.
 2. Assim que o frango estiver bem cozido, acrescente o molho de tomate, o ketchup, a mostarda e champignon a gosto.
